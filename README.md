@@ -4,5 +4,5 @@
 - 💬 Ask me about anything involving gaming and sports since they are both things that I love
 - 📫 How to reach me: School email - S544228@nwmissouri.edu Professional email: officialwillcolbertii@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I've been to California, Texas, Kansas, Missouri, Oklahoma, Mexico, Hondurasy, and Belize! 
+- ⚡ Fun fact: I've been to California, Texas, Kansas, Missouri, Oklahoma, Mexico, Honduras, and Belize! 
 - ✨ Interests: Chess, Programming, Video Games, Sports, Nature, Content Creation, and Music
